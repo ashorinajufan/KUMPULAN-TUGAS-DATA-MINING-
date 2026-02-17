@@ -1,0 +1,2 @@
+# KUMPULAN-TUGAS-DATA-MINING-
+Ashorina Jufan Sabela (2304020184)
